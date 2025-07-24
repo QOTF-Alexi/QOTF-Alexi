@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Alexandra.
-- 👀 I’m interested in electronics & electrical engineering.
+- 👀 I’m interested in trainzzzz. And electronics too.
 - 🌱 I’m currently learning C#
 - 📫 How to reach me: idk however you can.
 - 😄 Pronouns: she/her
